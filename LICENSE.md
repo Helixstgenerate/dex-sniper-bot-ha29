@@ -1,4 +1,4 @@
-# 
+# exclusive dex sniper bot Algorithm | market-making + front-running-detection offers the most advanced dex sniper bot, with market-making and front-running-detection. Ideal for
 
 
 
